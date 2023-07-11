@@ -1,3 +1,0 @@
-# Staty
-
-# wzj AK IOI
